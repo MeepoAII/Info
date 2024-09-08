@@ -6,3 +6,5 @@
 @XYenChi, @chenyy, @cubercsl, @moesoha join the organization.
 ##### 2024/9/6
 @XYenChi publish the avator version 0.   
+##### 2024/9/8   
+@KiritakeKumi join the organization.   
