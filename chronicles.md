@@ -8,3 +8,6 @@
 @XYenChi publish the avator version 0.   
 ##### 2024/9/8   
 @KiritakeKumi join the organization.   
+##### 2024/9/9   
+@wzhd join the organization.
+
